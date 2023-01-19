@@ -7,5 +7,4 @@ things that i like🤔
 * coding
 * Making apps📱
 * reading books📚
-
-and coding on replit👨‍💻
+* and coding on replit👨‍💻
